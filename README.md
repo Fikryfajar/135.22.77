@@ -1,2 +1,2 @@
 # buatuinaa
-ILOVEYOU🥰
+ILOVEYOu ina
